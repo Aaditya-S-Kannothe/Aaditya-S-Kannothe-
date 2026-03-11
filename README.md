@@ -1,2 +1,0 @@
-# Aaditya-S-Kannothe-
-Portfolio 
